@@ -1,0 +1,2 @@
+# repositro
+how i github
